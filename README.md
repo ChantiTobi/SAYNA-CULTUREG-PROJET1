@@ -1,1 +1,2 @@
 # SAYNAcoursChantiTobi
+Professionnel passionné par le digital, je m'investis dans le développement de stratégies innovantes pour FLS Communication, alliant technologie et expérience client. Mon parcours en gestion m’a permis de comprendre comment les outils numériques peuvent transformer le service client et optimiser les opérations. En intégrant DHL Express à Sambava et en supervisant des projets pour TELMA et MVOLA, je vise à utiliser le digital pour renforcer la croissance de l'entreprise.
