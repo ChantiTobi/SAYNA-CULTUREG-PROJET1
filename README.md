@@ -1,4 +1,4 @@
-# FLS Communication - Stratégies Digitales et Innovation
+# Stratégies Digitales et Innovation
 
 ## À propos de moi
 
